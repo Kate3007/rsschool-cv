@@ -1,1 +1,2 @@
 https://Kate3007.github.io/rsschool-cv/cv
+https://Kate3007.github.io/rsschool-cv/
